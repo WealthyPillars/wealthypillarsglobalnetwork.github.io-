@@ -42,3 +42,5 @@ The Bigger Picture
 Whether in marriage, leadership, family, office work, politics, or friendship, the principle is simple: ego isolates, but humility unites. Agile living isn’t about being a generalist who does everything. It’s about being a teammate who asks, “How can I help?” instead of, “Is this my job?”
 
 When each of us learns to step outside our roles when needed, we build bonds that are stronger, teams that are faster, and relationships that are more enduring. The best teams—on the field, in the office, or at home—win together because no one lets ego stand in the way of progress
+
+Olaposi Adefisoye is my name just helping everyone to be a better Person 
